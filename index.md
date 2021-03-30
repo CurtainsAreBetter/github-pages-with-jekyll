@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Tom Rooney
 
-I'm glad you are here. I plan to talk about ...
+No plans for this page have been made so far
